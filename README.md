@@ -30,6 +30,6 @@ CBD Isolate 99% Pure 700$ X1 OZ
 (S) = Sativa
 (H) = Hybrid
 
-10% Off Samedi et Dimanche!
+5% Off Samedi et Dimanche!
 Livraison gratuite pour les commandes de 200$ et plus!
 <a>Pour toutes questions ou commentaires poursuivez ci-bas </br> <a href="mailto:visionerf33@protonmail.com">Envoyer un courriel ou passer une commande</a>
