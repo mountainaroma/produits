@@ -4,14 +4,14 @@ Mountain Aroma Dispensaire
 
 Menu du jourFleurs séchées - Grade médical (AAAA)
 
-🌚💎 Black Diamond 210$  X1 OZ (I)
-🏝️🌫️ Island haze 200$  X1 OZ (S)
-⭐🐶 Stardawg guava 230$ X1 OZ (S)
-🐯🍪 Animal cookies 525$ X4 OZ (I)
-🍬😋 BC sweet tooth 450$ x4 OZ (I)
-🥇🏜️ Og kush 500$ x4 OZ (H)
-🍫😇 Pre 98 Bubba 825$ x8 OZ (I)
-🇿🇦 Congo 1500$  x16 OZ (S)
+. blue dream 210$  X1 OZ (H)
+. Pink kush 190$  X1 OZ (I)
+. Ice Wreck 220$ X1 OZ (H)
+. Blue mystic 525$ X4 OZ (I)
+. Afgoo  475$ x4 OZ (I)
+. Alien OG 500$ x4 OZ (H)
+. laughing Buddha 825$ x8 OZ (S)
+. Quantum kush 1400$  x16 OZ (S)
 
 Concentrés
 
