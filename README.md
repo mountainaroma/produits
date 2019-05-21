@@ -4,14 +4,14 @@ Mountain Aroma Dispensaire
 
 Menu du jourFleurs séchées - Grade médical (AAAA)
 
-. blue dream 210$  X1 OZ (H)
-. Pink kush 190$  X1 OZ (I)
-. Ice Wreck 220$ X1 OZ (H)
-. Blue mystic 525$ X4 OZ (I)
-. Afgoo  475$ x4 OZ (I)
-. Alien OG 500$ x4 OZ (H)
-. laughing Buddha 825$ x8 OZ (S)
-. Quantum kush 1400$  x16 OZ (S)
+- blue dream 210$  X1 OZ (H)
+- Pink kush 190$  X1 OZ (I)
+- Ice Wreck 220$ X1 OZ (H)
+- Blue mystic 525$ X4 OZ (I)
+- Afgoo  475$ x4 OZ (I)
+- Alien OG 500$ x4 OZ (H)
+- laughing Buddha 825$ x8 OZ (S)
+- Quantum kush 1400$  x16 OZ (S)
 
 Concentrés
 
