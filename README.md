@@ -1,5 +1,3 @@
-Mountain Aroma|Produits
-
 Mountain Aroma Dispensaire
 
 Menu du jourFleurs séchées - Grade médical (AAAA)
