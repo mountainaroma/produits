@@ -6,7 +6,7 @@ Menu:
 
 - blue dream 210$  X1 OZ (H)
 - Pink kush 190$  X1 OZ (I)
-- Ice Wreck 220$ X1 OZ (H)
+- Jack the ripper 220$ X1 OZ (S)
 - Blue mystic 525$ X4 OZ (I)
 - Afgoo  475$ x4 OZ (I)
 - Alien OG 500$ x4 OZ (H)
