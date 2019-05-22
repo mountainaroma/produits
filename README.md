@@ -18,13 +18,13 @@ Menu:
 - laughing Buddha 825$ x8 OZ (S)
 - Quantum kush 1400$  x16 OZ (S)
 
-"Concentrés"
+"Concentrés" "fait avec des fleurs AAAA"
 
 Wax:
 
 -purple moonrock (H) 675$ X1 Oz ou 400$ 14G
 
-shatter: "fait avec des fleurs AAAA"
+shatter: 
 
 -Pineapple express (H) 650$ X1 Oz ou 350$ 14G
 
