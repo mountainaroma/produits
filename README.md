@@ -1,4 +1,4 @@
-  24H  🗻 Mountain Aroma 🗻  7/7
+  24H  🗻 Mountain Aroma 🗻  7/7  18+
 
 🎉"Des nouvelles sorte tout les jours"🎉
 
