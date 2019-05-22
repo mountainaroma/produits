@@ -24,7 +24,7 @@ Wax:
 
 -purple moonrock (H) 675$ X1 Oz ou 400$ 14G
 
-shatter: 
+Shatter: 
 
 -Pineapple express (H) 650$ X1 Oz ou 350$ 14G
 
