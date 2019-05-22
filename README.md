@@ -13,6 +13,15 @@ Mountain Aroma Dispensaire
 
 Concentrés
 
+Shatter
+
+Pineapple express (H) 650$ X1 Oz ou 350$ 14G
+
+Death star (i) 650$ X1 Oz ou 350$ 14G
+
+Gorilla glue #4 (H) 650$ X1 Oz ou 350$ 14G
+
+
 Live Resin
 
 Bruce Banner (H) 750$ X1 Oz ou 425$ 14G
