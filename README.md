@@ -2,7 +2,7 @@
 
 🎉"Des nouvelles sorte tout les jours"🎉
 
-(Producteur,Grossiste) (🇨🇦seulement)
+(Producteur,Grossiste)🇨🇦seulement
 
 
 Menu: (I)Indica -(S)Sativa -(H)Hybrid
