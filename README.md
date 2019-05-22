@@ -7,7 +7,7 @@
 
 Menu:
  
-🌱"Fleurs séchées" - Grade médical (AAAA)
+🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
 - blue dream 210$  X1 OZ (H)
