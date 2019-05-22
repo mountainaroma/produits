@@ -40,7 +40,7 @@ Live Resin:
 
 -Black Tuna (I) 750$ X1 OZ ou 425$ 14G
 
-Hash:
+Hash: "importation privée"
 
 Mercedes Black Hash 175$ X1 OZ
 Marocain Blond 400$ X1 OZ ou 250$ X14G
