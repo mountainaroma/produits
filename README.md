@@ -2,7 +2,7 @@
 
 🎉"Des nouvelles sorte tout les jours"🎉
 
-(Dispensaire,Grossiste)
+(Dispensaire,Grossiste) 🇨🇦
 
 
 Menu:
