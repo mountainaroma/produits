@@ -1,6 +1,6 @@
 Mountain Aroma Dispensaire
 
-Menu du jourFleurs séchées - Grade médical (AAAA)
+Menu du jour Fleurs séchées - Grade médical (AAAA)
 
 - blue dream 210$  X1 OZ (H)
 - Pink kush 190$  X1 OZ (I)
