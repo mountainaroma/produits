@@ -2,7 +2,7 @@
 
 🎉"Des nouvelles sorte tout les jours"🎉
 
-(Dispensaire,Grossiste) 🇨🇦
+(Dispensaire,Grossiste) (🇨🇦seulement)
 
 
 Menu: (I)Indica -(S)Sativa -(H)Hybrid
