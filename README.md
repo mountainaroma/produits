@@ -1,4 +1,4 @@
-       🗻 Mountain Aroma 🗻  7/7jours
+       🗻 Mountain Aroma 🗻  7/7
 
 (Dispensaire,Grossiste)
 
