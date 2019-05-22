@@ -17,7 +17,7 @@ Shatter
 
 Pineapple express (H) 650$ X1 Oz ou 350$ 14G
 
-Death star (i) 650$ X1 Oz ou 350$ 14G
+Death star (I) 650$ X1 Oz ou 350$ 14G
 
 Gorilla glue #4 (H) 650$ X1 Oz ou 350$ 14G
 
