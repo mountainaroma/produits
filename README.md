@@ -48,7 +48,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 -Black Tuna (I) 750$ X1 OZ ou 425$ 14G
 
-(Hash: "importation privée"
+(Hash)  "importation privée"
 
 -Mercedes Black Hash 175$ X1 OZ
 
