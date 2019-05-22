@@ -28,12 +28,12 @@ Live Resin:
 
 -Black Tuna (I) 750$ X1 OZ ou 425$ 14G
 
-Hash
+Hash:
 
 Mercedes Black Hash 175$ X1 OZ
 Marocain Blond 400$ X1 OZ ou 250$ X14G
 
-CBD
+CBD:
 
 CBD Isolate 99% Pure 700$ X1 OZ
 
