@@ -15,7 +15,7 @@ Concentrés
 
 Live Resin
 
-Bruce Banner (H) ....................
+Bruce Banner (H) 750$ X1 Oz ou 425$ 14G
 
 Black Tuna (I) 750$ X1 OZ ou 425$ 14G
 
