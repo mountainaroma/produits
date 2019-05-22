@@ -12,9 +12,10 @@ Mountain Aroma Dispensaire
 - Quantum kush 1400$  x16 OZ (S)
 
 Concentrés
-
 Live Resin
+
 Bruce Banner ....................
+
 Black Tuna 750$ X1 OZ ou 425$ 14G
 
 Hash
