@@ -19,6 +19,13 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 - laughing Buddha 825$ x8 OZ (S)
 - Quantum kush 1400$  x16 OZ (S)
 
+🌱"Fleurs séchées" (AAA)
+
+- Bubba kush 130$ X1 Oz (I)
+
+- Rockstar 130$  X1 OZ (I)
+
+
 🍯"Concentrés" "fait avec des fleurs AAAA"
 
 (Wax:
