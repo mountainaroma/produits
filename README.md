@@ -17,14 +17,15 @@ Shatter:
 
 -Pineapple express (H) 650$ X1 Oz ou 350$ 14G
 
--Death star (I) 650$ X1 Oz ou 350$ 14G
+-Death Bubba (I) 650$ X1 Oz ou 350$ 14G
 
 -Gorilla glue #4 (H) 650$ X1 Oz ou 350$ 14G
 
+-Bruce Banner (H) 650$ X1 Oz ou 350$ 14G
 
 Live Resin:
 
--Bruce Banner (H) 750$ X1 Oz ou 425$ 14G
+-Tom Ford (I) 750$ X1 Oz ou 425$ 14G
 
 -Black Tuna (I) 750$ X1 OZ ou 425$ 14G
 
