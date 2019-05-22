@@ -43,7 +43,9 @@ Menu:
 
 (Hash: "importation privée"
 
--Mercedes Black Hash 175$ X1 OZ-Marocain Blond 400$ X1 OZ ou 250$ X14G
+-Mercedes Black Hash 175$ X1 OZ
+
+-Marocain Blond 400$ X1 OZ ou 250$ X14G
 
 (CBD:
 
