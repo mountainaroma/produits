@@ -7,7 +7,7 @@
 
 Menu:
  
-"Fleurs séchées" - Grade médical (AAAA)
+🌱"Fleurs séchées" - Grade médical (AAAA)
 
 - blue dream 210$  X1 OZ (H)
 - Pink kush 190$  X1 OZ (I)
@@ -18,13 +18,13 @@ Menu:
 - laughing Buddha 825$ x8 OZ (S)
 - Quantum kush 1400$  x16 OZ (S)
 
-"Concentrés" "fait avec des fleurs AAAA"
+🍯"Concentrés" "fait avec des fleurs AAAA"
 
-Wax:
+(Wax:
 
 -purple moonrock (H) 675$ X1 Oz ou 400$ 14G
 
-Shatter: 
+(Shatter: 
 
 -Pineapple express (H) 650$ X1 Oz ou 350$ 14G
 
@@ -34,20 +34,20 @@ Shatter:
 
 -Bruce Banner (H) 650$ X1 Oz ou 350$ 14G
 
-Live Resin:
+(Live Resin:
 
 -Tom Ford (I) 750$ X1 Oz ou 425$ 14G
 
 -Black Tuna (I) 750$ X1 OZ ou 425$ 14G
 
-Hash: "importation privée"
+(Hash: "importation privée"
 
-Mercedes Black Hash 175$ X1 OZ
-Marocain Blond 400$ X1 OZ ou 250$ X14G
+-Mercedes Black Hash 175$ X1 OZ
+-Marocain Blond 400$ X1 OZ ou 250$ X14G
 
-CBD:
+(CBD:
 
-CBD Isolate 99.33% Pure 700$ X1 OZ
+-CBD Isolate 99.33% Pure 700$ X1 OZ
 
 (I) = Indica
 (S) = Sativa
