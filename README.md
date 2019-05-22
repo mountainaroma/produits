@@ -38,7 +38,7 @@ Marocain Blond 400$ X1 OZ ou 250$ X14G
 
 CBD:
 
-CBD Isolate 99% Pure 700$ X1 OZ
+CBD Isolate 99.33% Pure 700$ X1 OZ
 
 (I) = Indica
 (S) = Sativa
