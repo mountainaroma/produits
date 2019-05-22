@@ -11,22 +11,22 @@ Mountain Aroma Dispensaire
 - laughing Buddha 825$ x8 OZ (S)
 - Quantum kush 1400$  x16 OZ (S)
 
-Concentrés
+"Concentrés"
 
-Shatter
+Shatter:
 
-Pineapple express (H) 650$ X1 Oz ou 350$ 14G
+-Pineapple express (H) 650$ X1 Oz ou 350$ 14G
 
-Death star (I) 650$ X1 Oz ou 350$ 14G
+-Death star (I) 650$ X1 Oz ou 350$ 14G
 
-Gorilla glue #4 (H) 650$ X1 Oz ou 350$ 14G
+-Gorilla glue #4 (H) 650$ X1 Oz ou 350$ 14G
 
 
-Live Resin
+Live Resin:
 
-Bruce Banner (H) 750$ X1 Oz ou 425$ 14G
+-Bruce Banner (H) 750$ X1 Oz ou 425$ 14G
 
-Black Tuna (I) 750$ X1 OZ ou 425$ 14G
+-Black Tuna (I) 750$ X1 OZ ou 425$ 14G
 
 Hash
 
