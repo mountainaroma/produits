@@ -1,6 +1,6 @@
   24H  🗻 Mountain Aroma 🗻  7/7
 
-🎉Des nouvelles sorte tout les jours🎉
+🎉"Des nouvelles sorte tout les jours"🎉
 
 (Dispensaire,Grossiste)
 
