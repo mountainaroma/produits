@@ -1,4 +1,4 @@
-  24H  🗻 Mountain Aroma 🗻  7/7  18+
+  🇨🇦24H  🗻 Mountain Aroma 🗻  7/7  18+🇨🇦
 
 🎉"Des nouvelles sorte tout les jours"🎉
 
@@ -7,7 +7,8 @@
 
 Menu:
  
-🌱"Fleurs séchées" - Grade médical (AAAA)
+🌱"Fleurs séchées" - Grade médical (AAAA)🏥
+
 
 - blue dream 210$  X1 OZ (H)
 - Pink kush 190$  X1 OZ (I)
