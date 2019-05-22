@@ -1,4 +1,4 @@
-       🗻 Mountain Aroma 🗻  7/7
+  24H  🗻 Mountain Aroma 🗻  7/7
 
 (Dispensaire,Grossiste)
 
