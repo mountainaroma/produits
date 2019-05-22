@@ -5,7 +5,7 @@
 (Dispensaire,Grossiste) 🇨🇦
 
 
-Menu:  (I) = Indica (S) = Sativa (H) = Hybrid
+Menu:  (I)Indica (S)Sativa (H)Hybrid
  
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
