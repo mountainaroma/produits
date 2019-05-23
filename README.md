@@ -21,9 +21,9 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 🌱"Fleurs séchées" (AAA)
 
-- Bubba kush 130$ X1 Oz (I)
 
-- Rockstar 130$  X1 OZ (I)
+
+
 
 
 🍯"Concentrés" "fait avec des fleurs AAAA"
