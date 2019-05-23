@@ -19,7 +19,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 - pré Bubba 98 800$ x8 OZ (S)
 - La confidential 1600$ x16 OZ (S)
 
-🌱"Fleurs séchées" (AAA)
+🌱"Fleurs séchées" (AAA)⏳
 
 
 
