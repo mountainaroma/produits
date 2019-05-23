@@ -12,12 +12,12 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 - Alien og 190$  X1 OZ (H)
 - Banana cream 210$  X1 OZ (I)
-- black Diamonds 200$ X1 OZ (S)
+- bleue Magoo 200$ X1 OZ (I)
 - Bleu mystic 500$ X4 OZ (I)
 - Green crack 475$ x4 OZ (I)
-- Purple Haze 475$ x4 OZ (H)
-- pré Bubba 98 800$ x8 OZ (S)
-- La confidential 1600$ x16 OZ (S)
+- Purple Haze 475$ x4 OZ (S)
+- pré Bubba98 800$ x8 OZ (I)
+- Sugar plum  1550$ x16 OZ (S)
 
 
 
