@@ -11,7 +11,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 
 - Alien og 190$  X1 OZ (H)
-- Banana kush 210$  X1 OZ (I)
+- Banana cream 210$  X1 OZ (I)
 - black Diamonds 200$ X1 OZ (S)
 - Bleu mystic 500$ X4 OZ (I)
 - Green crack 475$ x4 OZ (I)
