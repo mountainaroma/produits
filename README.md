@@ -10,14 +10,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- blue dream 210$  X1 OZ (H)
-- Pink kush 190$  X1 OZ (I)
-- Jack the ripper 220$ X1 OZ (S)
-- Blue mystic 525$ X4 OZ (I)
-- Afgoo  475$ x4 OZ (I)
-- Alien OG 500$ x4 OZ (H)
-- laughing Buddha 825$ x8 OZ (S)
-- Quantum kush 1400$  x16 OZ (S)
+- Alien og 190$  X1 OZ (H)
+- Banana kush 210$  X1 OZ (I)
+- black Diamonds 200$ X1 OZ (S)
+- Bleu mystic 500$ X4 OZ (I)
+- Green crack 475$ x4 OZ (I)
+- Purple Haze 475$ x4 OZ (H)
+- pré Bubba 98 800$ x8 OZ (S)
+- La confidential 1600$ x16 OZ (S)
 
 🌱"Fleurs séchées" (AAA)
 
