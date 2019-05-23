@@ -10,7 +10,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- Alien og 190$  X1 OZ (H)
+- Krypronite 210$  X1 OZ (I)
 - Banana cream 210$  X1 OZ (H)
 - blue Magoo 200$ X1 OZ (I)
 - Bleu mystic 500$ X4 OZ (I)
