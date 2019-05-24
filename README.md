@@ -19,6 +19,13 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 - Nuken 800$ x8 OZ (I)
 - Purple Mamba 1350$ x16 OZ (I)
 
+- Face of OG  jar 3.5G 30$ (I)
+- Mango sherbet jar 3.5G  30$ (H)
+- Sugar Shack  jar  3.5G  30$ (H)
+- God gift  jar 3.5G  30$ (I)
+- purple haze  jar 3.5G  30$ (S)
+- Island sweet skunk jar 3.5$ 30$ (S)
+
 
 
 
