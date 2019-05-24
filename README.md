@@ -10,14 +10,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- Kryptonite 210$  X1 OZ (I)
-- Banana cream 210$  X1 OZ (H)
-- blue Magoo 200$ X1 OZ (I)
-- Bleu mystic 500$ X4 OZ (I)
-- Green crack 475$ x4 OZ (I)
-- Purple Haze 475$ x4 OZ (S)
-- pré Bubba98 800$ x8 OZ (I)
-- Sugar plum  1550$ x16 OZ (S)
+- Grape Krush 210$  X1 OZ (I)
+- Animal cookies 210$  X1 OZ (H)
+- Purple candy 200$ X1 OZ (I)
+- Kryptonite 500$ X4 OZ (I)
+- Hindu kush 550$ x4 OZ (I)
+- Greasy Pink 550$ x4 OZ (I)
+- Nuken 800$ x8 OZ (I)
+- Purple Mamba 1350$ x16 OZ (I)
 
 
 
