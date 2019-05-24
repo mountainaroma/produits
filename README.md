@@ -22,12 +22,21 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 
 
+
+
+
+
+
+
 - Face of OG  jar 3.5G 30$ (I)
 - Mango sherbet jar 3.5G  30$ (H)
 - Sugar Shack  jar  3.5G  30$ (H)
 - God gift  jar 3.5G  30$ (I)
 - purple haze  jar 3.5G  30$ (S)
 - Island sweet skunk jar 3.5$ 30$ (S)
+
+
+
 
 
 
