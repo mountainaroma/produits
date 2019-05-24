@@ -18,7 +18,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 - Greasy Pink 550$ x4 OZ (I)
 - Nuken 800$ x8 OZ (I)
 - Purple Mamba 1350$ x16 OZ (I)
-
+,...........................................
 
 
 
