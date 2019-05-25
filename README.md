@@ -10,14 +10,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- Grape Krush 210$  X1 OZ (I)
-- Animal cookies 210$  X1 OZ (H)
-- Purple candy 200$ X1 OZ (I)
-- Kryptonite 500$ X4 OZ (I)
-- Hindu kush 550$ x4 OZ (I)
-- Greasy Pink 550$ x4 OZ (I)
-- Nuken 800$ x8 OZ (I)
-- Purple Mamba 1350$ x16 OZ (I)
+- Durban poison  210$  X1 OZ (S)
+- G-13        190$  X1 OZ (I)
+- Cherry kush  200$ X1 OZ (I)
+- Égyptian Musk  500$ X4 OZ (S)
+- Headband OG  475$ x4 OZ (H)
+- Lemon Jack  520$ x4 OZ (S)
+- Pink kush  850$ x8 OZ (I)
+- Black D.O.G. 1500$ x16 OZ (I)
 ............................................
 
 
