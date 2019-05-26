@@ -13,14 +13,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- Durban poison  210$  X1 OZ (S)
-- G-13        190$  X1 OZ (I)
-- Cherry kush  200$ X1 OZ (I)
-- Égyptian Musk  500$ X4 OZ (S)
-- Headband OG  475$ x4 OZ (H)
-- Lemon Jack  520$ x4 OZ (S)
-- Pink kush  850$ x8 OZ (I)
-- Black D.O.G. 1500$ x16 OZ (I)
+- Black Cherry soda  210$  X1 OZ (H)
+- Chemo       190$  X1 OZ (I)
+- Hindu kush  200$ X1 OZ (I)
+- Alpha Blue  475$ X4 OZ (I)
+- Lemon thaï  450$ x4 OZ (S)
+- Death star  525$ x4 OZ (I)
+- Purple Widow  800$ x8 OZ (H)
+- Banana Cream 1550$ x16 OZ (H)
 ............................................
 
 
