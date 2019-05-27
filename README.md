@@ -6,9 +6,7 @@
 
 
 (Producteur,Grossiste)🇨🇦seulement
-(I) = Indica
-(S) = Sativa
-(H) = Hybrid
+
 
 Menu: (I)Indica -(S)Sativa -(H)Hybrid
  
@@ -78,9 +76,6 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 -CBD Isolate 99.33% Pure 700$ X1 OZ
 
-(I) = Indica
-(S) = Sativa
-(H) = Hybrid
 
 5% Off Samedi et Dimanche!
 Livraison gratuite pour les commandes de 150$ et plus!
