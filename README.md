@@ -47,7 +47,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 (budder)
 
--Kandy kusk (H) 675$ X1 Oz ou 400$ 14G
+-Kandy kush (H) 675$ X1 Oz ou 400$ 14G
 
 (Shatter)
 
