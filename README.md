@@ -2,7 +2,7 @@
 
 
 
-🎉"Des nouvelles sorte tout les jours"🎉
+🎉"Des nouvelles sortes toute les jours"🎉
 
 (Producteur,Grossiste)🇨🇦seulement
 
