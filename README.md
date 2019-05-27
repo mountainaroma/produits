@@ -48,7 +48,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 (Wax)
 
--purple moonrock (H) 675$ X1 Oz ou 400$ 14G
+- Kandy kusk (H) 675$ X1 Oz ou 400$ 14G
 
 (Shatter)
 
