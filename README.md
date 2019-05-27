@@ -4,8 +4,11 @@
 
 🎉"Des nouvelles sortes toute les jours"🎉
 
-(Producteur,Grossiste)🇨🇦seulement
 
+(Producteur,Grossiste)🇨🇦seulement
+(I) = Indica
+(S) = Sativa
+(H) = Hybrid
 
 Menu: (I)Indica -(S)Sativa -(H)Hybrid
  
