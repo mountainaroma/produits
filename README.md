@@ -13,14 +13,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- Black Cherry soda  210$  X1 OZ (H)
-- Chemo       190$  X1 OZ (I)
-- Hindu kush  200$ X1 OZ (I)
-- Alpha Blue  475$ X4 OZ (I)
-- Lemon thaï  450$ x4 OZ (S)
-- Death star  525$ x4 OZ (I)
-- Purple Widow  800$ x8 OZ (H)
-- Banana Cream 1550$ x16 OZ (H)
+- White nightmare  210$  X1 OZ (H)
+- Violator kush    200$  X1 OZ (I)
+- Rockstar Bubba  210$ X1 OZ (I)
+- Bc Big Bub  500$ X4 OZ (S)
+- Lemon thaï  470$ x4 OZ (S)
+- Summer Bubba   555$ x4 OZ (I)
+- Black Diesel  825$ x8 OZ (H)
+- Red congoles 1300$ x16 OZ (S)
 ............................................
 
 
