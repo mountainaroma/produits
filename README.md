@@ -46,7 +46,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 🍯"Concentrés" "fait avec des fleurs AAAA"
 
-(Wax)
+(budder)
 
 - Kandy kusk (H) 675$ X1 Oz ou 400$ 14G
 
