@@ -14,7 +14,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 
 - Blue Dream  210$  X1 OZ (H)
-- scoot Master  210$  X1 OZ (S)
+- scout Master  210$  X1 OZ (S)
 - Hindu og  190$ X1 OZ (I)
 - Animal cookies  550$ X4 OZ (H)
 - Blue God  525$ x4 OZ (I)
