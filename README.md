@@ -13,14 +13,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- White nightmare  210$  X1 OZ (H)
-- Violator kush    200$  X1 OZ (I)
-- Rockstar Bubba  210$ X1 OZ (I)
-- Bc Big Bub  500$ X4 OZ (S)
-- Lemon thaï  470$ x4 OZ (S)
-- Summer Bubba   555$ x4 OZ (I)
-- Black Diesel  825$ x8 OZ (H)
-- Red congoles 1300$ x16 OZ (S)
+- Blue Dream  210$  X1 OZ (H)
+- scoot Master  210$  X1 OZ (S)
+- Hindu og  190$ X1 OZ (I)
+- Animal cookies  550$ X4 OZ (H)
+- Blue God  525$ x4 OZ (I)
+- Bubba Kush  475$ x4 OZ (I)
+- Jack the Riper  800$ x8 OZ (S)
+- afghan Kush 1225$ x16 OZ (I)
 ............................................
 
 
