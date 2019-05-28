@@ -20,7 +20,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 - Blue God  525$ x4 OZ (I)
 - Bubba Kush  475$ x4 OZ (I)
 - Jack the Riper  800$ x8 OZ (S)
-- afghan Kush 1225$ x16 OZ (I)
+- afghan Kush AAA 1225$ x16 OZ (I)
 ............................................
 
 
