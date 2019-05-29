@@ -13,14 +13,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- Blue Dream  210$  X1 OZ (H)
-- scout Master  210$  X1 OZ (S)
-- Hindu og  190$ X1 OZ (I)
-- Animal cookies  550$ X4 OZ (H)
-- Blue God  525$ x4 OZ (I)
-- Bubba Kush  475$ x4 OZ (I)
-- Jack the Riper  800$ x8 OZ (S)
-- afghan Kush AAA 1225$ x16 OZ (I)
+- Zombi Kush  200$  X1 OZ (I)
+- Blue Magic 180$  X1 OZ (S)
+- Bleuberry Widow  190$ X1 OZ (H)
+- Purple Mamba  425$ X4 OZ (I)
+- Pré Bubba 98  450$ x4 OZ (I)
+- Candy Jack  500$ x4 OZ (S)
+- Northern Star  800$ x8 OZ (I)
+- Bubblegum Kush  1600$ x16 OZ (I)
 ............................................
 
 
