@@ -13,14 +13,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- Zombie Kush  200$  X1 OZ (I)
-- Blue Magic 180$  X1 OZ (S)
-- Bleuberry Widow  190$ X1 OZ (H)
-- Purple Mamba  425$ X4 OZ (I)
-- Pré Bubba 98  450$ x4 OZ (I)
-- Candy Jack  500$ x4 OZ (S)
-- Northern Star  800$ x8 OZ (I)
-- Bubblegum Kush  1600$ x16 OZ (I)
+- WTF Kush  210$  X1 OZ (H)
+- White Bubba 210$  X1 OZ (I)
+- Violator Kush 190$ X1 OZ (I)
+- Mendo Breath  500$ X4 OZ (H)
+- Love potion  475$ x4 OZ (S)
+- L.A Confidentiel  500$ x4 OZ (I)
+- Sherbet       700$ x8 OZ (I)
+- King Louis   1600$ x16 OZ (I)
 ............................................
 
 
