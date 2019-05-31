@@ -1,6 +1,6 @@
 24H 🗻 Mountain Aroma 🗻 7/7 18+
 
-Instagram : @mountain_aroma  pictures
+Instagram : @mountain_aroma  -pictures-
 
 🎉"Des nouvelles sortes toute les jours"🎉
 
