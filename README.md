@@ -51,7 +51,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 -Kandy kush (H) 675$ X1 Oz ou 400$ 14G
 
-(Shatter)
+(Shatter)🌀
 
 -Hawaiian (S) 650$ X1 Oz ou 350$ 14G
 
@@ -61,19 +61,19 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 -Bruce Banner (H) 650$ X1 Oz ou 350$ 14G
 
-(Live Resin)
+(Live Resin)🏵️
 
 -Tom Ford (I) 750$ X1 Oz ou 425$ 14G
 
 -Black Tuna (I) 750$ X1 OZ ou 425$ 14G
 
-(Hash)  "importation privée"
+(Hash)◼️  "importation privée"
 
 -Mercedes Black Hash 175$ X1 OZ
 
 -Marocain Blond 400$ X1 OZ ou 250$ X14G
 
-(CBD)
+(CBD)🏥
 
 -CBD Isolate 99.33% Pure 700$ X1 OZ
 
