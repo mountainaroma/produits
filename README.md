@@ -47,7 +47,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 🍯"Concentrés" "fait avec des fleurs AAAA"
 
-(budder)
+(budder)🧀
 
 -Kandy kush (H) 675$ X1 Oz ou 400$ 14G
 
