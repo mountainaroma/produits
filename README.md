@@ -80,7 +80,10 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 -Phoenix Tears infusion 600 mg Thc
 
--saveurs  canelle où menthe verte 40$
+-saveurs  canelle où menthe verte 40$G
+
+
+
 
 5% Off Samedi et Dimanche!
 Livraison gratuite pour les commandes de 150$ et plus!
