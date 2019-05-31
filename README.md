@@ -82,7 +82,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 -saveurs  canelle où menthe verte 40$G
 
-
+(Seringue)
 
 
 5% Off Samedi et Dimanche!
