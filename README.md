@@ -79,7 +79,9 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 
 
--Phoenix Tears infusion 600 mg Thc
+(Phoenix Tears)🏥
+
+-infusion 600 mg Thc (voie orale)
 -saveurs  canelle où menthe verte 40$G (Seringue)
 
 
