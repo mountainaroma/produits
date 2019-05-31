@@ -30,8 +30,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 
 
-
- 
+ (AAAA+)
 - Super OG  jar 3.5G 30$ (I) 
 - Mango sherbet jar 3.5G  30$ (H)
 - Sugar Shack  jar  3.5G  30$ (H)
