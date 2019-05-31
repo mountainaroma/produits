@@ -31,7 +31,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 
 
 
-- Face of OG  jar 3.5G 30$ (I)
+-Super OG  jar 3.5G 30$ (I)
 - Mango sherbet jar 3.5G  30$ (H)
 - Sugar Shack  jar  3.5G  30$ (H)
 - God's gift  jar 3.5G  30$ (I)
@@ -92,3 +92,17 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 5% Off Samedi et Dimanche!
 Livraison gratuite pour les commandes de 150$ et plus!
 <a>Pour toutes questions ou commentaires poursuivez ci-bas </br> <a href="mailto:visionerf33@protonmail.com">Envoyer un courriel ou passer une commande</a>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
