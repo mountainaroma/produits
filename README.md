@@ -2,7 +2,6 @@
 
 Instagram : @mountain_aroma  -pictures-
 
-🎉"Des nouvelles sortes toute les jours"🎉
 
 
 (Producteur,Grossiste)🇨🇦seulement
