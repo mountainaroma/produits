@@ -12,14 +12,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- Jack Frost 210$  X1 OZ (H)
-- G-13       180$  X1 OZ (I)
-- King Louis  200$ X1 OZ (I)
-- Black Diesel  475$ X4 OZ (H)
-- Blue Héron  500$ x4 OZ (I)
-- Grease Monkey  550$ x4 OZ (H)
-- Sugar Plum   800$ x8 OZ (S)
-- Comatose   1600$ x16 OZ (I)
+- Jack Frost 190$  X1 OZ (H)
+- LA confidential   190$  X1 OZ (I)
+- Black Diesel  200$ X1 OZ (H)
+- Afghan kush  425$ X4 OZ (I)
+- Blue God   500$ x4 OZ (I)
+- Super Kush    425$ x4 OZ (I)
+- Blueberry widow   750$ x8 OZ (H)
+- OG kush    1400$ x16 OZ (H)
 ............................................
 
 
