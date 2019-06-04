@@ -27,7 +27,7 @@ QUESTION ET RÉPONSE DE LA SÉCURITÉ
 
 
 Livraison gratuite pour les commandes de 150$ et plus!
-<a>Pour toutes questions ou commentaires poursuivez ci-bas </br> <a href="mailto:visionerf33@protonmail.com">Envoyer un courriel ou passer une commande</a>
+<a>Pour toutes questions ou commentaires poursuivez ci-bas </br> <a href="mailto:visionerf33@protonmail.com">Envoyer un courriel </a>
 
 
 
