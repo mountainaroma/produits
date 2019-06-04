@@ -4,7 +4,7 @@ Instagram : @mountain_aroma  photos et menu
 
 
 
-(Producteur,Grossiste)
+(Producteur,Grossiste) transfert interac seulement
 
 
 
