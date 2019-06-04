@@ -19,7 +19,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 - LA confidential   525$ x4 OZ (I)
 - Mendo Breath   500$ x4 OZ (I)
 - Purple kush   800$ x8 OZ (I)
-- Face of OG   1350$ x16 OZ (H)
+- Face of OG   1350$ x16 OZ (I)
 ............................................
 
 
