@@ -15,7 +15,7 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 - Zombie kush  190$  X1 OZ (I)
 - Romulan   210$  X1 OZ (I)
 - Purple Dream  190$ X1 OZ (H)
-- Réf consolese  500$ X4 OZ (S)
+- Red consolese  500$ X4 OZ (S)
 - LA confidential   525$ x4 OZ (I)
 - Mendo Breath   500$ x4 OZ (I)
 - Purple kush   800$ x8 OZ (I)
