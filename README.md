@@ -12,14 +12,14 @@ Menu: (I)Indica -(S)Sativa -(H)Hybrid
 🌱"Fleurs séchées" - Grade médical (AAAA) (Qualité contrôlé)
 
 
-- Jack Frost 190$  X1 OZ (H)
-- LA confidential   190$  X1 OZ (I)
-- Black Diesel  200$ X1 OZ (H)
-- Afghan kush  425$ X4 OZ (I)
-- Blue God   500$ x4 OZ (I)
-- Super Kush    425$ x4 OZ (I)
-- Blueberry widow   750$ x8 OZ (H)
-- OG kush    1400$ x16 OZ (H)
+- Zombie kush  190$  X1 OZ (I)
+- Romulan   210$  X1 OZ (I)
+- Purple Dream  190$ X1 OZ (H)
+- Réf consolese  500$ X4 OZ (S)
+- LA confidential   525$ x4 OZ (I)
+- Mendo Breath   500$ x4 OZ (I)
+- Purple kush   800$ x8 OZ (I)
+- Face of OG   1350$ x16 OZ (H)
 ............................................
 
 
