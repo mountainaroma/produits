@@ -8,7 +8,7 @@ Instagram : @mountain_aroma  photos et menu
 
 
 
-pour commander envoyé vaux choix par écrit votre adresse complète et envoyé l'argent a visionerf33@protonmail.com je vous ferai parvenir un numéro de commande et un suivi postale
+pour commander envoyé votre choix par écrit votre adresse complète et envoyé l'argent a visionerf33@protonmail.com je vous ferai parvenir un numéro de commande et un suivi postale
 
 
 QUESTION ET RÉPONSE DE LA SÉCURITÉ
