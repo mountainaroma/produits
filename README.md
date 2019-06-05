@@ -19,7 +19,15 @@ QUESTION ET RÉPONSE DE LA SÉCURITÉ
 
 
 
+English :
 
+To order sent your choice in writing sent the money to visionerf33@protonmail.com I will send you an order number and a postal follow-up
+
+QUESTION AND RESPONSE OF SECURITY
+
+Security question to the recipient:  Ciel
+
+Security response: Bleu
 
 
 
