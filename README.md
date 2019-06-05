@@ -21,14 +21,14 @@ QUESTION ET RÉPONSE DE LA SÉCURITÉ
 
 English:🇬🇧
 
-To order sent your choice in writing sent the money to visionerf33@protonmail.com I will send you an order number and a postal follow-up
 
-QUESTION AND RESPONSE OF SECURITY
+to order, sent your choice in writing your full address and sent the money to viewf33@protonmail.com I will send you an order number and a postal follow-up
 
-Security question to the recipient:  Ciel
+ QUESTION AND RESPONSE OF SECURITY
 
-Security response: Bleu
+ Security question to the recipient: Ciel
 
+ Security Answer: Blue
 
 
 
