@@ -6,7 +6,7 @@ Instagram : @mountain_aroma  photos et menu
 
 (Producteur,Grossiste) transfert interac seulement
 
-
+Françai:🇫🇷
 
 pour commander envoyé votre choix par écrit votre adresse complète et envoyé l'argent a visionerf33@protonmail.com je vous ferai parvenir un numéro de commande et un suivi postale
 
@@ -19,7 +19,7 @@ QUESTION ET RÉPONSE DE LA SÉCURITÉ
 
 
 
-English :
+English:🇬🇧
 
 To order sent your choice in writing sent the money to visionerf33@protonmail.com I will send you an order number and a postal follow-up
 
