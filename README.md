@@ -22,7 +22,7 @@ QUESTION ET RÉPONSE DE SÉCURITÉ
 English:🇬🇧
 
 
-to order, sent your choice in writing your full address and sent the money to viewf33@protonmail.com I will send you an order number and a postal follow-up
+to order, sent your choice in writing your full address and sent the money to visionerf33@protonmail.com I will send you an order number and a postal follow-up
 
  QUESTION AND RESPONSE OF SECURITY
 
